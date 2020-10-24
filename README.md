@@ -68,7 +68,7 @@
 
 ![Волонтерский копус 36 как "росток новой власти"](images/rostki_novoi_vlasti.png)
 
-*Снимок экрана со страницы номинации: https://premiagi.ru/initiative/5811 *
+*Снимок экрана со страницы номинации: https://premiagi.ru/initiative/5811*
 
 
 
